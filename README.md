@@ -1,0 +1,2 @@
+# fgpc46-47exhibition_long
+Departure_2023北一攝影校內展_長留言條
